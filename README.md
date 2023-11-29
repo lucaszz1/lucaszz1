@@ -9,4 +9,4 @@ Meu nome é Lucas;
 ### Você pode entrar em contato comigo 📫
 
 
-![](https://media.tenor.com/XvRM0vvOORMAAAAd/smart-monkey-in-glasses.gif)
+![](https://media.tenor.com/xJ3wO685fQ4AAAAd/monkey.gif)
